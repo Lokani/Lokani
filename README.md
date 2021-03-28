@@ -1,0 +1,2 @@
+- Hi, I’m Lokani and i like to play video games, watch youtube and chat with people. 
+- You can find me on Discord (Lokani#6937) Reddit (xxLokani) and maybe here :V
